@@ -146,6 +146,8 @@
 
 * [@Foone: You Want to know how bullshit insane our brains are](https://twitter.com/Foone/status/1014267515696922624)
 
+* [Stephen Baxter's "Last Contact"](https://web.archive.org/web/20080725045740/http://www.solarisbooks.com/books/newbookscifi/last-contact.asp)
+
 * 
 
   
